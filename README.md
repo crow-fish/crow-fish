@@ -1,2 +1,0 @@
-#ITS NOT DONEE
-![](https://cdn.discordapp.com/attachments/1390632034866696262/1396472604088471662/Untitled531_20250720154327.png?ex=687e35f6&is=687ce476&hm=ffb1cb75fb3ba0a82eef01c0fb67a04e53ed396cb59ae813cfd568ff31467d61&)
