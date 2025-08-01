@@ -4,7 +4,7 @@
 ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399813159312687264/hwdd6k.webp?ex=688a5d18&is=68890b98&hm=717953345ca3317cdb23648499498425d99d1808c4d13626c3a112ac946271cd&) ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399813608115802124/30gzxa.webp?ex=688a5d83&is=68890c03&hm=40d759e4ccf922a44a43a0e4d5f4021ba224e243b00730ca9ac24eb1903fabf6&)
 ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399814295944036389/e70.gif?ex=688a5e27&is=68890ca7&hm=057d1b04fdd4c645b4b0a419094aab2badb0d50dde5dcd714e7bde7834777bf6&)
 
-hi im leo! my top interests rn r lads, twst and qqgk. i like making new friends and talking with people even tho im really bad at it,,
+hi im leo! my top interests rn r lads, twst, gmnd and qqgk. i like making new friends and talking with people even tho im really bad at it,,
 
 c+h and int freely with me, even if its not in my name! dont be shy to talk to me, tho i might be very awkward at first and a little shy myself even, im friendly tho - trust me! especially if we have the same interests
 
