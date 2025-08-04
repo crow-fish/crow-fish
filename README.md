@@ -8,6 +8,8 @@ hi im leo! my top interests rn r lads, twst, gmnd and qqgk. i like making new fr
 
 c+h and int freely with me, even if its not in my name! dont be shy to talk to me, tho i might be very awkward at first and a little shy myself even, im friendly tho - trust me! especially if we have the same interests
 
+i am a very big crowfish (sylus and rafayel) fan
+
 dni if ure under 13
 
 ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399814689495584828/e107.png?ex=688a5e85&is=68890d05&hm=0f28cda3c41556c321d541a2e524938dedc8a8e969dd44022d50ad5eca659e78&) ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399814668419334235/e43.gif?ex=688a5e80&is=68890d00&hm=c242dcaf7bb42c2953fd01c5fe5394b1a9cb6c19f17d7d5019131bf2bc5497de&) ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399814685070721024/e123.png?ex=688a5e84&is=68890d04&hm=ca568d2cd1d853277cdff92629f8768c4ebf0cb3aefc190cc7657868fe215e5b&) ![](https://cdn.discordapp.com/attachments/1390632034866696262/1399817000976515222/Untitled551_20250729211247.png?ex=688a60ac&is=68890f2c&hm=3ae4af85a72148629953346e9fd0a62735ad1873aabd2bc4e3cfa31a12c4c737&)
