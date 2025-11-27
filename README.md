@@ -4,7 +4,7 @@
 ![](https://adriansblinkiecollection.neocities.org/g34.gif) ![](https://i.imgur.com/g3JmCi0.gif)
 ![](https://adriansblinkiecollection.neocities.org/g115.gif)
 
-hi im leo! my top interests rn r lads, twst, gmnd and qqgk. i like making new friends and talking with people even tho im really bad at it,,
+hi im leo! my top interests rn r lads, twst, umamusume and qqgk. i like making new friends and talking with people even tho im really bad at it,,
 
 c+h and int freely with me, even if its not in my name! dont be shy to talk to me, tho i might be very awkward at first and a little shy myself even, im friendly tho - trust me! especially if we have the same interests
 
