@@ -6,7 +6,7 @@
 
 hi im leo! my top interests rn r lads, twst, umamusume and qqgk. ![](https://i.postimg.cc/3wYS8K4D/3BD53E23-1A6E-41F5-91EF-9249804C5D1C.gif) i like making new friends and talking with people even tho im really bad at it,,
 
-![](https://i.postimg.cc/438XzWyQ/image.png) c+h and int freely with me, even if its not in my name! dont be shy to talk to me, tho i might be very awkward at first and a little shy myself even, im friendly tho - trust me! especially if we have the same interests
+![](https://i.postimg.cc/438XzWyQ/image.png) c+h and int freely with me, even if its not in my name! (tho, plz w2i, most of the time im offtab) dont be shy to talk to me, tho i might be very awkward at first and a little shy myself even, im friendly tho - trust me! especially if we have the same interests
 
 i am a very big crowfish (sylus and rafayel) fan ![](https://i.imgur.com/QnNCMHZ.gif)
 
