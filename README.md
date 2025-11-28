@@ -13,4 +13,7 @@ i am a very big crowfish (sylus and rafayel) fan ![](https://i.imgur.com/QnNCMHZ
 dni if ure under 13 
 
 
+
  ![](https://cdn.discordapp.com/attachments/1057009579159978014/1403067462077124708/stamp_format_20250807202854.png?ex=692a84a6&is=69293326&hm=dc0dc9b8da9210e2cd7fcfb75683300c22af934c9087f554a686025a444ad6ae) ![](https://pixelsafari.neocities.org/stamps/romantic.gif) ![](https://cdn.discordapp.com/attachments/1057009579159978014/1403067465143029910/stamp_format_20250807202752.png?ex=692a84a7&is=69293327&hm=31e2fec710d03cd217eea8749691dbe910e294c6237368a1b829b31ae2fc8da3) ![](https://i.imgur.com/lQ85LCY.gif )
+
+![](https://i.postimg.cc/rwL8HbhB/IMG-9032.gif)
