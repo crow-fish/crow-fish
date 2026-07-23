@@ -2,7 +2,7 @@
 
 ![.](https://64.media.tumblr.com/98eb39b603c95c8c79c7a38adfac3a52/1a4aada150e43b0f-b5/s250x400/de964aae4d90575981265daa8e74f54614733ce6.gifv)
 
-hi im leo! my top interests rn milgram, umamusume, nso and unholyc. ![](https://64.media.tumblr.com/f37019421e109e519743fe0ebdde4385/a251213c95b11efb-aa/s75x75_c1/51f24e94acb3db09e865f4bb614aef895d000b33.gifv) i like making new friends and talking with people even tho im really bad at it,,
+hi im leo! my top interests rn r milgram, umamusume, nso and unholyc. ![](https://64.media.tumblr.com/f37019421e109e519743fe0ebdde4385/a251213c95b11efb-aa/s75x75_c1/51f24e94acb3db09e865f4bb614aef895d000b33.gifv) i like making new friends and talking with people even tho im really bad at it,,
 
 ![](https://64.media.tumblr.com/d01f7de762091d818fafe0326660fb5f/5f9fcf40d37c29b5-4c/s75x75_c1/19828f3026bc4512e66cf20debe5aa01b5462276.gifv) c+h and int freely with me, even if its not in my name! (tho, plz w2i, most of the time im offtab) dont be shy to talk to me, i might be very awkward at first, but im friendly - trust me! especially if we have the same interests
 
