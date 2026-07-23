@@ -1,17 +1,13 @@
-# ![](https://i.postimg.cc/zfdbSYXr/7E8FB459-DC1F-493D-B8D8-C22AD5C0D624.gif) ![](https://i.postimg.cc/QNmJYWpG/62383255-C3CD-41BC-8CC6-FF3ABA8AAD4E.gif)
-![](https://cdn.discordapp.com/attachments/1057009579159978014/1403063005050048512/4b96578bfc5a8a3e2c22fb7a42a8129b.jpg?ex=68962fc0&is=6894de40&hm=db1b4b6ebf5c30c43ab892b169cb79335ad5bf4ef03a275d94fcf5e3f65fd43d&)
+# ![](https://64.media.tumblr.com/758b03ceb13774d41f3916d078851999/33dfd7eda65ea141-b7/s75x75_c1/dd47b90df1b554772f02072d6f13d6cae8fd17ad.gifv) ![](https://blinkies.cafe/b/blinkiesCafe-Vs.gif)
 
-![](https://adriansblinkiecollection.neocities.org/g34.gif) ![](https://i.imgur.com/g3JmCi0.gif)
-![](https://adriansblinkiecollection.neocities.org/g115.gif)
+![.](https://64.media.tumblr.com/98eb39b603c95c8c79c7a38adfac3a52/1a4aada150e43b0f-b5/s250x400/de964aae4d90575981265daa8e74f54614733ce6.gifv)
 
-hi im leo! my top interests rn r lads, twst, umamusume and qqgk. ![](https://i.postimg.cc/3wYS8K4D/3BD53E23-1A6E-41F5-91EF-9249804C5D1C.gif) i like making new friends and talking with people even tho im really bad at it,,
+hi im leo! my top interests rn milgram, umamusume, nso and unholyc. ![](https://64.media.tumblr.com/f37019421e109e519743fe0ebdde4385/a251213c95b11efb-aa/s75x75_c1/51f24e94acb3db09e865f4bb614aef895d000b33.gifv) i like making new friends and talking with people even tho im really bad at it,,
 
-![](https://i.postimg.cc/438XzWyQ/image.png) c+h and int freely with me, even if its not in my name! (tho, plz w2i, most of the time im offtab) dont be shy to talk to me, i might be very awkward at first and a little shy myself even, im friendly - trust me! especially if we have the same interests
+![](https://64.media.tumblr.com/d01f7de762091d818fafe0326660fb5f/5f9fcf40d37c29b5-4c/s75x75_c1/19828f3026bc4512e66cf20debe5aa01b5462276.gifv) c+h and int freely with me, even if its not in my name! (tho, plz w2i, most of the time im offtab) dont be shy to talk to me, i might be very awkward at first, but im friendly - trust me! especially if we have the same interests
 
-
+![.](https://64.media.tumblr.com/4e768b8d94ac9c8aa82672c7051d252b/155a9dc0284fc333-1a/s75x75_c1/339e13a54209874716b1799096e1a5d6160822dc.gifv) ![.](https://64.media.tumblr.com/b50cc657219f6e257bb7479120c48177/470fdf01dfe04a25-9d/s75x75_c1/13250d5456576b8732687c0d390c71fc0f95559f.gifv)
 
 
 
- ![](https://cdn.discordapp.com/attachments/1057009579159978014/1403067462077124708/stamp_format_20250807202854.png?ex=692a84a6&is=69293326&hm=dc0dc9b8da9210e2cd7fcfb75683300c22af934c9087f554a686025a444ad6ae) ![](https://pixelsafari.neocities.org/stamps/romantic.gif) ![](https://cdn.discordapp.com/attachments/1057009579159978014/1403067465143029910/stamp_format_20250807202752.png?ex=692a84a7&is=69293327&hm=31e2fec710d03cd217eea8749691dbe910e294c6237368a1b829b31ae2fc8da3) ![](https://i.imgur.com/lQ85LCY.gif )
-
-![](https://i.postimg.cc/rwL8HbhB/IMG-9032.gif)
+ ![](https://64.media.tumblr.com/be0ec09b25a93e57e09f10c53c4fe698/c05611e0b2bcc841-96/s100x200/2e01e69d27712911f4ecb2793183da184663375d.gifv)  ![](https://64.media.tumblr.com/c8defe760026760095b6194a1f6acc78/c05611e0b2bcc841-2d/s100x200/45ebf30dd8fb4ef6ffd40b516f26b24ec742aa6b.gifv) ![](https://64.media.tumblr.com/18b6b4f1fc31116a92d3430a7423740f/c05611e0b2bcc841-8d/s100x200/60d5d70654cf9ced79149c34ab9345fe9064e622.gifv) ![.](https://64.media.tumblr.com/7a482061f94e80614cfeeda13733c158/c05611e0b2bcc841-e0/s100x200/86e74c39432e56a6316e6527337f4dc319e995fe.gifv)
